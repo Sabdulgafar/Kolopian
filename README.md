@@ -1,2 +1,2 @@
 # Kolopian
-Modern Outfit for Men - An Official Landing Page
+Modern eCommerce website - An Official Landing Page
